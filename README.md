@@ -1,0 +1,1 @@
+# Notebook-Lm-Assuntos-financeiros-atividade-Dio
